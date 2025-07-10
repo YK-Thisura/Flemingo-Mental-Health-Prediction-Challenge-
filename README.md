@@ -1,1 +1,1 @@
-![Thumbnails](https://github.com/user-attachments/assets/93d13529-b097-44ec-bb4f-327b7c4e1e57)
+![Kaggle Competitions](https://github.com/user-attachments/assets/f54a40da-2d39-412c-ad24-dd451d258b96)
